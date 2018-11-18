@@ -1,1 +1,0 @@
-Teoretisk oblig
